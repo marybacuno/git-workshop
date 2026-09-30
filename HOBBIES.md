@@ -1,0 +1,3 @@
+Singing
+Watching 
+Playing
